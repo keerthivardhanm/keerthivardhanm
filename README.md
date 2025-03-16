@@ -23,4 +23,4 @@ I’m a passionate student driven by curiosity and innovation in **Cybersecurity
 
 ## 📫 **Let's Connect!**  
 📩 **Email:** keerthivadhanm@gmail.com  
-🔗 **LinkedIn: https://www.linkedin.com/in/m-keerthi-vardhan-47b918296/  
+🔗 **LinkedIn:** https://www.linkedin.com/in/m-keerthi-vardhan-47b918296/  
